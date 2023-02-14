@@ -1,0 +1,2 @@
+#Vazifa
+#salom qalesamasdfgfdswerftgfds
